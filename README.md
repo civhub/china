@@ -1,2 +1,2 @@
-# cn-ico
+# China (Icon Pack)
 China (Icon Pack)
